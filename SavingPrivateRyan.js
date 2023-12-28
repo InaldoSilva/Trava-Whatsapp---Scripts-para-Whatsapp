@@ -28,8 +28,6 @@ SAVING PRIVATE RYAN
 by
 Robert Rodat
 This screenplay has been type by David Pritchett.
-It has been converted to a PDF file by ScreenTalk™
-http://www.screentalk.org
 FADE IN:
 CREDITS: White lettering over a back background. The
 THUNDEROUS SOUNDS OF A MASSIVE NAVAL BARRAGE are heard. The
